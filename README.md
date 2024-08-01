@@ -1,4 +1,4 @@
-### Part 1: The Abandoned Mall
+### Chapter 1: The Abandoned Mall
 
 Lily's eyes fluttered open, her dirty blonde shoulder-length hair falling across her face as she found herself standing in an unfamiliar place. Disoriented, she instinctively reached to brush her hair aside, her fingers grazing her cheek. The touch of her own hand startled her, as if she were reacquainting herself with her own body.
 
@@ -27,7 +27,7 @@ As she explored further, an inexplicable urge to leave the mall grew stronger. S
 
 Lily stepped into the outside world, leaving the abandoned mall behind her.
 
-### Part 2: The Mall
+### Chapter 2: The Mall
 
 As Lily stepped through the doorway, a startling transformation occurred. The gloomy, storm-threatened sky vanished, replaced by bright, warm sunlight. She blinked slowly, her eyes struggling to adjust to the sudden change.
 In a daze, Lily turned back, one hand still gripping the edge of one of the double doors. Her eyes flew wide open at the sight before her, her mind struggling to process what she was seeing. The abandoned, decaying mall she had just left was gone. In its place stood a vibrant, bustling shopping center teeming with life and activity. 
@@ -48,7 +48,7 @@ She took a tentative step back, half-expecting the illusion to shatter. But the 
 
 Was she dreaming? Had she imagined the abandoned mall? Or was this vibrant scene the illusion? Lily stood rooted to the spot, caught between two worlds, unsure of what to believe or where to go next.
 
-### Part 3: The Store
+### Chapter 3: The Store
 
 Lily found herself drawn towards the parking lot, her feet moving of their own accord. As she walked, she noticed the once-empty lot now held a scattering of cars, their polished surfaces gleaming in the afternoon sun. The concrete beneath her gave way to a sidewalk on her right, lined with meticulously trimmed shrubs and newly installed benches.
 She followed the path, guided by an inexplicable urge, her eyes taking in the transformed surroundings. The mall's exterior, which had seemed decrepit just moments ago, now boasted fresh paint and clean windows. Shoppers strolled by, their chatter a stark contrast to the earlier silence.
