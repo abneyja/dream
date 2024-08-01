@@ -2,11 +2,11 @@
 
 Lily's eyes fluttered open, her dirty blonde shoulder-length hair falling across her face as she found herself standing in an unfamiliar place. Disoriented, she instinctively reached to brush her hair aside, her fingers grazing her cheek. The touch of her own hand startled her, as if she were reacquainting herself with her own body.
 
-She glanced down, taking stock of herself. A woman in her mid to late twenties stared back at her from a reflective surface nearby, piercing blue eyes blinking slowly as they tried to focus. Her light complexion seemed to glow softly in the dim lighting, a stark contrast to her surroundings.
+A fog seemed to cloud her mind as she took in her surroundings—an abandoned mall, its emptiness echoing with forgotten whispers of bustling shoppers. Lily's movements were sluggish, as if she were moving through water, her consciousness not quite fully awake. The eerie silence was broken only by the sound of her own shallow breathing.
+
+As her eyes adjusted to the dim light, Lily caught sight of her reflection in a nearby dusty mirror. A woman in her mid to late twenties stared back at her, piercing blue eyes blinking slowly as they tried to focus. Her light complexion seemed to glow softly in the dim lighting, a stark contrast to the shadowy abandonment around her.
 
 Lily's gaze traveled down her outfit, searching for any clue to explain her presence here. She wore faded blue jeans with a small tear just above the right knee, paired with well-worn brown ankle boots. Her upper body was clad in a loose-fitting, white V-neck t-shirt layered under an unbuttoned plaid flannel shirt in muted reds and browns. She patted her pockets, hoping to find a phone or wallet that might offer some explanation, but they were empty.
-
-A fog seemed to cloud her mind as she took in her surroundings—an abandoned mall, its emptiness echoing with forgotten whispers of bustling shoppers. Lily's movements were sluggish, as if she were moving through water, her consciousness not quite fully awake. Her fair skin stood in stark contrast to the shadowy abandonment around her, the eerie silence broken only by the sound of her own shallow breathing.
 
 She stood near an entrance, her gaze drawn to the double glass doors leading outside. Through the smudged panes, she could see a vast expanse of concrete stretching out towards a seemingly deserted parking lot, the distance seeming to grow with each blink of her weary eyes. The exterior of the building framed her view asymmetrically, its walls jutting out like mismatched arms—the right side a stubby projection, while the left extended nearly twice as far, creating an oddly lopsided facade.
 
