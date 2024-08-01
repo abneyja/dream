@@ -16,8 +16,19 @@ As Lily's gaze drifted back to the mall's entrance, she noticed a weathered clot
 
 Lily's brow furrowed as she tried to recall how she'd ended up here, but her memory offered no answers. With a deep breath, she turned her attention to the mall's interior. The front area was dimly lit, a few scattered lights still functioning, their weak glow mixing with the gray light seeping in from outside.
 
-As she wandered, Lily noticed more signs of decay and abandonment. Tattered posters hung limply from the walls, their edges curling and faded colors barely hinting at past vibrancy. A large directory sign stood crooked, its plastic cover cracked and letters missing, rendering store names unintelligible.
-Flickering fluorescent lights buzzed overhead, creating an eerie, inconsistent illumination that cast strange shadows across the floor. Some bulbs had given up entirely, leaving pockets of darkness that seemed to pulse with each flash of the working lights.
+As she wandered, Lily noticed more signs of decay and abandonment. Tattered posters hung limply from the walls, their edges curling and faded colors barely hinting at past vibrancy. Her gaze was drawn to a large directory sign standing crooked near the center of the lobby. 
+
+Its plastic cover was cracked, and several letters were missing from the mall's name at the top.
+
+Lily squinted, trying to make out the words. The backlight flickered erratically, making it difficult to read. In the brief moments of darkness, she could only see 
+
+"RI   R   K  M   L". 
+
+As the light sputtered back to life, the full name became visible: "RIVER CREEK MALL".
+
+"River Creek Mall," Lily murmured, her voice sounding unnaturally loud in the empty space. The name felt unfamiliar on her tongue, offering no clue to her whereabouts or how she'd arrived here.
+
+Flickering fluorescent lights buzzed overhead, creating an eerie, inconsistent illumination that cast strange shadows across the floor. Some bulbs had given up entirely, leaving pockets of darkness that seemed to pulse with each flash of the working lights. The inconsistent lighting made the abandoned stores loom ominously, their darkened interiors hinting at forgotten merchandise and long-gone shoppers.
 
 Near a long-defunct fountain, Lily saw overturned benches and torn seating. The cushions were ripped open, their stuffing spilling out like the innards of wounded creatures. Shards of broken planters littered the floor, the remnants of their long-dead plants nothing more than brown, brittle twigs.
 
