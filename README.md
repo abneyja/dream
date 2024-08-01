@@ -58,7 +58,8 @@ As Lily drew closer, a wave of dizziness washed over her. The world blurred, and
 
 The case before her held an array of expensive-looking wearables. Intricate metal pieces intertwined with shimmering stones, creating designs that seemed to shift in the low light. In the reflection of the glass, Lily caught a glimpse of herself, pale and wide-eyed.
 
-Before she could process what had happened, another wave of dizziness hit. When it passed, Lily found herself near the gray door at the end of the dead-end section, just a stone's throw from the hybrid storefront.
+Before she could process what had happened, another wave of dizziness hit. For a fleeting moment, as the world around her blurred, Lily glimpsed the abandoned mall once more—empty corridors and darkened storefronts flashing before her eyes. Then, as quickly as it appeared, the vision vanished. When the dizziness passed, Lily found herself near the gray door at the end of the dead-end section, just a stone's throw from the storefront.
+The momentary return to the abandoned setting left Lily even more unsettled, her mind struggling to reconcile these rapidly shifting realities.
 
 Bewildered, Lily reached for the door handle, testing it. The door remained stubbornly shut. Her mind reeled, struggling to make sense of these impossible jumps in space. Was she losing her grip on reality? Hallucinating? Or was something truly extraordinary happening?
 
