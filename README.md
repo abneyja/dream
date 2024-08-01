@@ -19,14 +19,14 @@ Near a long-defunct fountain, Lily saw overturned benches and torn seating. The 
 
 In what was once a food court, rusted tables and chairs were scattered haphazardly. A lone tray lay on the ground, its plastic surface warped and discolored by time. Behind the counters of abandoned eateries, Lily could make out the silhouettes of dormant equipment, covered in layers of dust and cobwebs.
 
-As she explored further, an inexplicable urge to leave the mall grew stronger. She found herself drawn back to the entrance, her hand reaching for the door handle. With a deep breath, she pushed against the cool metal, swinging the double doors outward.
+As she explored further, an inexplicable urge to leave the mall grew stronger. She found herself drawn back to the entrance, her hands reaching for both door handles. With a deep breath, she pushed against the cool metal, swinging the double doors outward.
 
 Lily stepped into the outside world, leaving the abandoned mall behind her.
 
 ### Part 2: The Mall
 
 As Lily stepped through the doorway, a startling transformation occurred. The gloomy, storm-threatened sky vanished, replaced by bright, warm sunlight. She blinked slowly, her eyes struggling to adjust to the sudden change.
-In a daze, Lily turned back, still holding a door open. Her eyes widened slightly at the sight before her, her mind struggling to process what she was seeing. The abandoned, decaying mall she had just left was gone. In its place stood a vibrant, bustling shopping center teeming with life and activity.
+In a daze, Lily turned back, one hand still gripping the edge of one of the double doors. Her eyes flew wide open at the sight before her, her mind struggling to process what she was seeing. The abandoned, decaying mall she had just left was gone. In its place stood a vibrant, bustling shopping center teeming with life and activity. 
 
 People of all ages moved about, chatting animatedly, carrying shopping bags, and window-shopping. The once-empty storefronts now displayed colorful merchandise, their windows gleaming. The air was filled with the hum of conversation, punctuated by occasional laughter and the ambient music playing softly overhead.
 
