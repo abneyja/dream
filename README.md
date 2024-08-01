@@ -30,9 +30,17 @@ As the light sputtered back to life, the full name became visible: "RIVER CREEK 
 
 Flickering fluorescent lights buzzed overhead, creating an eerie, inconsistent illumination that cast strange shadows across the floor. Some bulbs had given up entirely, leaving pockets of darkness that seemed to pulse with each flash of the working lights. The inconsistent lighting made the abandoned stores loom ominously, their darkened interiors hinting at forgotten merchandise and long-gone shoppers.
 
+As Lily ventured deeper into the mall, a massive sign caught her eye. The once-proud Macy's logo hung askew, several letters missing, leaving behind a ghostly "M CY'". 
+
+Through the grimy windows, she could make out the eerie silhouettes of mannequins. Some stood upright, frozen in time, while others lay in pieces on the floor, their limbs scattered like discarded toys. Tattered remnants of old displays clung to the walls, faded price tags still visible on dusty shelves.
+
 Near a long-defunct fountain, Lily saw overturned benches and torn seating. The cushions were ripped open, their stuffing spilling out like the innards of wounded creatures. Shards of broken planters littered the floor, the remnants of their long-dead plants nothing more than brown, brittle twigs.
 
 In what was once a food court, rusted tables and chairs were scattered haphazardly. A lone tray lay on the ground, its plastic surface warped and discolored by time. Behind the counters of abandoned eateries, Lily could make out the silhouettes of dormant equipment, covered in layers of dust and cobwebs.
+
+The faded outline of a Taco Bell sign caught her attention. Its bell logo was barely visible, the purple paint peeling away to reveal the metal beneath. The menu board still hung above the counter, offering specials long since expired. A toppled cash register lay on its side, its drawer hanging open, empty save for a few ancient receipts.
+
+The smell of mold and decay hung heavy in the air, mingling with the musty scent of abandoned spaces. As Lily moved through the food court, her footsteps echoed off the tiled floor, kicking up small clouds of dust with each step.
 
 As she explored further, an inexplicable urge to leave the mall grew stronger. She found herself drawn back to the entrance, her hands reaching for both door handles. With a deep breath, she pushed against the cool metal, swinging the double doors outward.
 
