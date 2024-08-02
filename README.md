@@ -88,12 +88,15 @@ Was she dreaming? Had she imagined the abandoned mall? Or was this vibrant scene
 ### Chapter 3: The Store
 
 Lily found herself drawn towards the parking lot, her feet moving of their own accord. As she walked, she noticed the once-empty lot now held a scattering of cars, their polished surfaces gleaming in the afternoon sun. The concrete beneath her gave way to a sidewalk on her right, lined with meticulously trimmed shrubs and newly installed benches.
+
 She followed the path, guided by an inexplicable urge, her eyes taking in the transformed surroundings. The mall's exterior, which had seemed decrepit just moments ago, now boasted fresh paint and clean windows. Shoppers strolled by, their chatter a stark contrast to the earlier silence.
 
 After a short distance, Lily encountered another section of the building—a narrow passageway that led to a dead end. At its terminus stood a solid gray door, unmarked and imposing. The passage itself was wider than a typical hallway, its high walls creating a canyon-like feel. Overhead, strings of unlit fairy lights crisscrossed the space.
+
 As Lily approached, the world around her shifted abruptly. The warm afternoon light vanished, replaced by the cool glow of now-illuminated fairy lights and strategically placed lamp posts. Night had fallen in an instant. Lily's heart, which had only just settled from her earlier shock, began racing anew. Her eyes darted around in disbelief at the sudden transition. How could day turn to night in the blink of an eye?
 
 The passageway, which had been quiet and nearly empty in the daylight, now buzzed with activity. What Lily had initially missed was a unique storefront nestled into the right wall—a large, open-air counter that blurred the line between indoor shop and outdoor market.
+
 Two men stood behind this counter, which was filled with an eclectic array of trinkets. They attended to a growing crowd of customers who browsed from the passage side. There was no visible entrance to the vendors' area, creating an odd, almost theatrical setup.
 
 Lily stood frozen for a moment, overwhelmed by the drastic change in atmosphere and the sudden influx of people. As her eyes adjusted to the night, she noticed more details of her transformed surroundings. To her left, further down the sidewalk, the familiar green and white logo of a Starbucks caught her attention. It occupied its own section of the mall, with a separate entrance marked by the company's signature styling.
