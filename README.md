@@ -56,9 +56,16 @@ Despite the setback, Lily knew she couldn't stay in the mall forever. With a mix
 
 As Lily stepped through the doorway, the expected scent of rain dissipated instantly, replaced by a wave of floral fragrance. She paused, inhaling deeply, her expression a mix of bewilderment and disbelief. The sweet, heady aroma of blooming flowers enveloped her senses, a stark contrast to the musty decay she had been breathing moments ago.
 
-Blinking against unexpectedly bright sunlight, Lily's gaze was drawn upward. The weathered, sagging awning she had noticed earlier was now in pristine condition, its fabric taut and vibrant. It provided a perfect balance of shade for the concrete path while allowing ample light to reach the edges where flower beds flourished.
+Blinking against unexpectedly bright sunlight, Lily's gaze was drawn upward. The weathered, sagging awning she had noticed earlier was now in pristine condition, its fabric taut and eye-catching. 
 
-These vibrant flower beds, which she was certain hadn't been there before, now stretched out towards the parking lot. Rows of colorful petunias, marigolds, and pansies swayed gently in a soft breeze, their petals a riot of purples, oranges, and yellows under the dappled sunlight filtering through the awning.
+The awning was a patchwork of vibrant squares, each one a different color that seemed to echo the hues of the flowers below. Reds, yellows, purples, and oranges created a cheerful mosaic overhead, casting a kaleidoscope of soft, colored light on the concrete path beneath.
+
+This colorful canopy provided a perfect balance of shade while allowing ample light to reach the edges where flower beds flourished. The dappled, multi-hued sunlight filtering through the awning gave an almost magical quality to the scene.
+
+These vibrant flower beds, which she was certain hadn't been there before, now stretched out towards the parking lot. Rows of colorful petunias, marigolds, and pansies swayed gently in a soft breeze, their petals mirroring the riot of colors above. The flowers seemed to dance under the shifting patterns of light.
+
+As Lily took in this unexpected explosion of color and life, she felt the oppressive weight of abandonment and despair that had cloaked her earlier begin to lift.
+For a moment, she forgot her bewilderment, allowing herself to be swept up in the simple beauty of the scene before her.
 
 Still dazed by this sudden transformation, Lily barely registered the sound of footsteps approaching from inside the mall. Acting on instinct, she held the door open as a woman in a smart business suit walked past her.
 
