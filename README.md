@@ -109,6 +109,10 @@ Just as she was about to get a better look at the wares, a wave of dizziness was
 
 The case before her held an array of expensive-looking wearables, unlike anything she'd seen before. Intricate metal pieces, reminiscent of clockwork mechanisms, intertwined with shimmering stones that seemed to pulse with an inner light. The designs appeared to shift and change as she looked at them, as if alive. In the reflection of the glass, Lily caught a glimpse of herself—her face pale, eyes wide with a mix of wonder and fear.
 
+Startled by her sudden relocation, Lily turned to look back at the counter and the crowd. To her shock, no one seemed to have noticed her unexplained movement. The two men behind the counter continued to attend to customers, their faces animated in conversation. The browsing crowd remained focused on the trinkets before them, completely oblivious to Lily's presence at the back of the store. It was as if she had become invisible, or perhaps had never been there at all in their reality.
+
+This realization sent a chill down Lily's spine. She was simultaneously present and absent, occupying a space between existence and non-existence. The disconnect between her experience and the world around her deepened her sense of disorientation and isolation.
+
 Before she could process what had happened, another wave of dizziness hit, more intense than the first. The world around her fractured like a broken mirror. For a fleeting moment, as reality splintered, Lily glimpsed the abandoned mall once more—empty corridors stretched into darkness, dust motes dancing in shafts of dim light, and the echoing silence of forgotten spaces. Then, as quickly as it appeared, the vision vanished in a swirl of shadows.
 
 When the dizziness passed, Lily found herself near the gray door at the end of the dead-end section, just a stone's throw from the bustling storefront. The whiplash of experiences—from abandonment to vibrant life and back again—left her gasping for breath, her mind reeling as it struggled to reconcile these rapidly shifting realities.
