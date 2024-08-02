@@ -54,7 +54,7 @@ Despite the setback, Lily knew she couldn't stay in the mall forever. With a mix
 
 ### Chapter 2: The Mall
 
-As Lily stepped through the doorway, the expected scent of rain dissipated instantly, replaced by a wave of floral fragrance. She paused, inhaling deeply, her brow furrowing in confusion. The sweet, heady aroma of blooming flowers enveloped her senses, a stark contrast to the musty decay she had been breathing moments ago.
+As Lily stepped through the doorway, the expected scent of rain dissipated instantly, replaced by a wave of floral fragrance. She paused, inhaling deeply, her expression a mix of bewilderment and disbelief. The sweet, heady aroma of blooming flowers enveloped her senses, a stark contrast to the musty decay she had been breathing moments ago.
 
 Blinking against unexpectedly bright sunlight, Lily's gaze was drawn upward. The weathered, sagging awning she had noticed earlier was now in pristine condition, its fabric taut and vibrant. It provided a perfect balance of shade for the concrete path while allowing ample light to reach the edges where flower beds flourished.
 
